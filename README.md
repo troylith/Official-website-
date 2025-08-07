@@ -1,2 +1,0 @@
-safeword 
-love ya bub 
